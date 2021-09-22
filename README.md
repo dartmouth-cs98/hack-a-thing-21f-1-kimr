@@ -30,5 +30,5 @@ https://www.youtube.com/watch?v=0-S5a0eXPoc&t=4720s
 
 
 #### Tutorial I created to create the app
-https://www.youtube.com/watch?v=0-S5a0eXPoc&t=4720s
+https://www.youtube.com/watch?v=0kL6nhutjQ8
 
